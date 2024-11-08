@@ -3,4 +3,4 @@
 
 𝘐'𝘮 𝘢 𝘨𝘢𝘮𝘦 𝘥𝘦𝘴𝘪𝘨𝘯𝘦𝘳 𝘢𝘯𝘥 𝘴𝘵𝘶𝘥𝘪𝘰 𝘩𝘦𝘢𝘥 𝘣𝘢𝘴𝘦𝘥 𝘪𝘯 𝘈𝘵𝘩𝘦𝘯𝘴, 𝘎𝘳𝘦𝘦𝘤𝘦. 𝘐 𝘣𝘶𝘪𝘭𝘥 𝘤𝘰𝘮𝘮𝘦𝘳𝘤𝘪𝘢𝘭 (𝘈𝘈𝘈) 𝘢𝘤𝘵𝘪𝘰𝘯 𝘨𝘢𝘮𝘦𝘴 𝘱𝘰𝘸𝘦𝘳𝘦𝘥 𝘣𝘺 𝘜𝘯𝘳𝘦𝘢𝘭 𝘌𝘯𝘨𝘪𝘯𝘦. 
 
-### You can sponsor my open-source work through [GitHub sponsors.](https://github.com/sponsors/porkotyler) 🙈
+### You can sponsor my open-source work through [GitHub sponsors.](https://github.com/sponsors/bitter-steel) 🙈
